@@ -1,0 +1,1 @@
+# INFOTE-Inventario-de-Elementos-Tecnol-gicos
